@@ -1,3 +1,7 @@
+<meta name="title" content="How to get a free Wii U">
+<meta name="description" content="Best ways to get a free Wii U!"> 
+<meta name="author" content="Nintendo"> 
+
 ### free-wii-u.gq
 
 # Want to get a free Wii U?
