@@ -7,3 +7,4 @@ Well its simple, you just have to beg everyone for it, even if you don't know th
 Or you can rob shops with armed weapons!
 
 
+Update: i got a wii u, unbelievable
